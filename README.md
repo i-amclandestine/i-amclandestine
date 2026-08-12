@@ -9,7 +9,7 @@
 </p>
 
 <p>
-introject # alter ₊˚⊹!　<a href="https://pluralkit.xyz/s/awyaxp">⋆˚꩜｡ system of 6 ୨୧</a>
+introject # alter ₊˚⊹!　<a href="https://pluralkit.xyz/s/awyaxp">⋆˚꩜｡ system of 7 ୨୧</a>
 </p>
 
 </div>
