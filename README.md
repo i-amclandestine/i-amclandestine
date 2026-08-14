@@ -5,7 +5,7 @@
 <br><br>
 
 <p>
-˚.🦴 ᵎᵎ puppy irl　✧　17　·　he they
+˚.🦇 ᵎᵎ vampire irl　✧　17　·　he they
 </p>
 
 <p>
