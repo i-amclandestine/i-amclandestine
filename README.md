@@ -13,3 +13,4 @@ introject # alter ₊˚⊹!　<a href="https://pluralkit.xyz/s/awyaxp">⋆˚꩜�
 </p>
 
 </div>
+<a href="https://rydon.straw.page/">R + N <3</a>
