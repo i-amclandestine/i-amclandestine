@@ -12,6 +12,6 @@
 introject # alter ₊˚⊹!　<a href="https://pluralkit.xyz/s/awyaxp">⋆˚꩜｡ system of 7 ୨୧</a>
 </p>
 
-</div>
-<p></p>
+
+<p>
 <a href="https://rydon.straw.page/">R + N <3</a>
